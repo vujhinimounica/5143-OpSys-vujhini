@@ -1,6 +1,7 @@
 # 5143-OpSys-vujhini
 
-![](https://plus.google.com/u/0/104197940023802871024/posts?pid=6099739940517484578&oid=104197940023802871024)
+![](https://lh3.googleusercontent.com/-CKNsYY7JURA/AAAAAAAAAAI/AAAAAAAAAAg/Yh57P5ghRQI/s80-c-k-no/photo.jpg)
 
-name:vujhini mounica
+name:Vujhini Mounica
+
 mail id:vujhinimounica7@gmail.com
